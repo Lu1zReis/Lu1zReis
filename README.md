@@ -1,4 +1,4 @@
-### Olá!! Eu sou o Luiz Reis e bem vindo ao meu perfil 😄
+### Olá! Me chamo Luiz Eduardo Reis Martins e bem vindo ao meu perfil 😄
 
  ##
  
