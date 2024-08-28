@@ -1,8 +1,5 @@
 ### Olá!! Eu sou o Luiz Reis e bem vindo ao meu perfil 😄
 
-- 🔭 Se desenvolvendo atualmente como full-stack (web).
-- 🌱 Atualmente estudando javascript.
-
  ##
  
 <div align="center">
