@@ -1,5 +1,3 @@
-### Olá! Me chamo Luiz Eduardo Reis Martins e bem vindo ao meu perfil 😄
-
  ##
  
 <div align="center">
